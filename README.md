@@ -1,3 +1,3 @@
 ### Video :
-[![Thumbnail](https://postimg.cc/Ty8mRcnN)](https://drive.google.com/file/d/17qZ2OGFKAlBj30VA_uhypMx19HuxRGXH/view?usp=sharing)
+[![Thumbnail](https://i.postimg.cc/FKzxVWzv/Screenshot-2024-04-12-193157.png)](https://drive.google.com/file/d/17qZ2OGFKAlBj30VA_uhypMx19HuxRGXH/view?usp=sharing)
 
